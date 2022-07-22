@@ -1,0 +1,2 @@
+- a collection of inactive [[information]] 
+- the place to keep historical documents and records

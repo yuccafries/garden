@@ -1,0 +1,3 @@
+- facts, [[information]], and skills acquired through [[experience]] or education
+- the theoretical or practical understanding of a subject
+- awareness or familiarity gained by experience

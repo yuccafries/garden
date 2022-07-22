@@ -1,0 +1,7 @@
+- a region or part of a somewhere
+	- a space allocated for a specific use
+	- a part of an object or surface
+- the extent or measurement of a surface
+	- surface area is its analog on the two-dimensional surface of a three-dimensional object
+- a subject or range of activity or interest
+	- [[PARA]] method

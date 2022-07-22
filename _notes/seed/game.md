@@ -1,0 +1,2 @@
+- an activity that one engages in for amusement or fun
+- a complete period of [[play]], ending in a final result
